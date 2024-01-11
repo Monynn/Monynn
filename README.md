@@ -14,7 +14,7 @@ Coming soon
   
 # 📚 Learning
 
-I will share some insights, tips, and tricks on [monynnn](monynnn.blogspot.com).
+I will share some insights, tips, and tricks on [monynnn](https://monynnn.blogspot.com/)
 
 # 📬 Connect
 Email: cardoso.monicaa11@gmail.com
