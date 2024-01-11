@@ -18,7 +18,7 @@ I will share some insights, tips, and tricks on [meudiariocibernetico](https://m
 
 ## 📬 Connect
 
-- Email: cardoso.monicaa11@gmail.comyour.email@gmail.com
+- Email: cardoso.monicaa11@gmail.com
 
 ## 🙌 Contributions
 
